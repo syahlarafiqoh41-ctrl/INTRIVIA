@@ -8,7 +8,7 @@
 ## Kesan Pesan INTRIVIA Sejauh Ini
 [INTRIVIA 2026 kurang seru,menurut saya tugas yang foto sama teman itu tidak terlalu berguna kalau iya pengen yang kayak gitu mendingan yang sesama cluster aja ]
 
-## Kesan Pesan Cluster [nomor cluster] sejauh ini
+## Kesan Pesan Cluster [1] sejauh ini
 [cluster saya lumayan suka, dengan berbagai teman yang unik]
 
 
